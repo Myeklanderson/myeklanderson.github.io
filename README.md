@@ -1,2 +1,1 @@
-# myeklanderson.github.io
-Michael Baja Anderson's Website
+MICHAEL PAUL BAJA ANDERSON
